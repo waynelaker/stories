@@ -16,5 +16,5 @@ Some paperwork to sign, a new bed, some food.
 A short time later they got in the car,  
 To drive to their house, it wasn’t that far.  
 
-The cage door was opened, ready to roam.
+The cage door was opened, ready to roam.  
 Welcome Archie, to your new home!
